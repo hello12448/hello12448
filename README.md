@@ -3,7 +3,8 @@
 💖 Pronouns: she/they
 💖 Fun fact: I have a very cute springer spaniel <3
 🫶🫶🫶🫶🫶
-![Hat](https://github.com/user-attachments/assets/feb52668-237a-49a6-b3ea-11442dca5a74
+![image](https://github.com/user-attachments/assets/ca1346d1-df1f-4aa4-8961-d5ad07462d1d)
+
 <!--
 **hello12448/hello12448** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
